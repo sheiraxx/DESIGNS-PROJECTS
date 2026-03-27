@@ -1,4 +1,4 @@
-# DESIGNS-PROJECTS
+# CANVA DESIGNS-PROJECTS
 Canva Designs – Internship Work
 Here are some campaign materials, infographics and so on...
 
