@@ -1,5 +1,5 @@
 # CANVA DESIGNS-PROJECTS
-> **CANVA Designs** – Internship Work
+**CANVA** Designs – Internship Work
 Here are some campaign materials, infographics and so on...
 
 [View All Designs Sample]
