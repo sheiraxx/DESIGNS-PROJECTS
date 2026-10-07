@@ -1,8 +1,10 @@
 # CANVA DESIGNS-PROJECTS
-**CANVA** Designs – Internship Work
+**CANVA** Designs – Internship Work/Projects
 Here are some campaign materials, infographics and so on...
 
 [View All Designs Sample]
+
+[Branding & Graphic Design]  (https://canva.link/see5zel2s1aoot7)
 
 [basketball summer camp poster] (https://canva.link/ejuqi4ir9p2ysn7)
 
@@ -19,6 +21,8 @@ Here are some campaign materials, infographics and so on...
 [letter heads] (https://www.canva.com/design/DAHCwqQsCYg/azgQQtMC7l3mykaOjsYFGA/edit?utm_content=DAHCwqQsCYg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 [lobby tv video project] (https://www.canva.com/design/DAHBuYP5VD8/OGW_YLPKeq8DOUJjpfu1yw/edit?utm_content=DAHBuYP5VD8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+
 
 ["what is?" Infographics] (https://www.canva.com/design/DAHBpC_gkRc/_oseB9KUVFnaH4I_62xtIQ/edit?utm_content=DAHBpC_gkRc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
