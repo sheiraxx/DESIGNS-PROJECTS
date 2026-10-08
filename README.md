@@ -1,4 +1,4 @@
-# CANVA DESIGNS-PROJECTS
+# CANVA MATERIALS DESIGNS-PROJECTS
 **CANVA** Designs – Internship Work/Projects
 Here are some campaign materials, infographics and so on...
 
